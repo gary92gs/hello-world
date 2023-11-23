@@ -1,1 +1,1 @@
-Garrett is so awesome, it is not even funny
+. He is not perfect though!
